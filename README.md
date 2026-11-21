@@ -1,2 +1,2 @@
 # BTNHOM
-CÔNG TY TNHH TMDV HÙNG OANH ĐN 
+Công ty TNHH Buymed
